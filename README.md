@@ -1,1 +1,1 @@
-Stanis³aw Jasiewicz
+Stanisï¿½aw Jasiewicz edytowano
