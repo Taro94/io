@@ -1,2 +1,2 @@
-Stanis�aw Jasiewicz edytowano
+Stanis�aw JASIEWICZ edytowano
 kolejna edycja
